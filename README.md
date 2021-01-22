@@ -19,7 +19,8 @@ I'm lazy af so I'll make it simple. This is a personal introduction, so don't cr
 > “I really do love psychology and philosophy but I'm no professional at these things. Because I love seeing the true side of humanity, as I've continued that, I have ultimately lent towards philosophy and psychology but it is not something in which I try to study.” - Yoko Taro
 
 ### Music genres
-Any genres, but I prefer the 'relaxing' one (classical, orchestra, country music, etc)
+Any genres, but I prefer the 'relaxing' one (classical, orchestra, country music, etc).
+
 I'm also in love with Red Music *(the common name of the revolutionary music genre in Vietnam)*
 
 ### Games

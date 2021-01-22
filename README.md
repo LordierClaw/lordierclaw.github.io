@@ -6,6 +6,7 @@ I'm lazy af so I'll make it simple. This is a personal introduction, so don't cr
 - I'm into many things and one of them is coding.
 - A friendly Asian, also I'm short and kinda introverted.
 - Communist, weeb.
+
 # Detailed information and stuffs
 
 > I like Yoko Taro and his idea.

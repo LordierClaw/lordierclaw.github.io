@@ -37,8 +37,11 @@ In my opinion, video game is more likely a form of art, even if it could give me
 
 ### Daily life and activies?
 Who are you?
+
 For my true followers: *Praise the 455*
+
 For my friends: check my facebook or instagram.
+
 For whoever you are: my paypal is always open, feel free to supply me xD
 
 # Contacts

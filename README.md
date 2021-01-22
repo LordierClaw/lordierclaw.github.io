@@ -52,5 +52,5 @@ For whoever you are: my paypal is always open, feel free to supply me xD
 - Steam: https://steamcommunity.com/id/lordierclaw/
 - Facebook: fb.com/lordierclaw
 - Twitter: @lordierclaw
-- Instagram: @lordier.claw
+- Instagram: lordier.claw
 - Discord: lordierclaw#5808

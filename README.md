@@ -10,7 +10,7 @@ I'm lazy af so I'll make it simple. This is a personal introduction, so don't cr
 # Detailed information and stuffs
 
 > I like Yoko Taro and his idea.
-> I want to be a member of Blue Dragon Children's Foundation.
+> Also, I want to be a member of Blue Dragon Children's Foundation in the near future xD.
 
 ### Favourite quotes
 > “The true soldier fights not because he hates what is in front of him, but because he loves what is behind him.”- G.K. Chesterton
@@ -32,7 +32,7 @@ In my opinion, video game is more likely a form of art, even if it could give me
 ### Other hobbies
 
  - Art
- - Learning languages
+ - Learning new languages
  - Medieval themes
  - History, philosophy, pyschology, sociology
  - Weeb's stuffs (anime, manga, hololive, etc)

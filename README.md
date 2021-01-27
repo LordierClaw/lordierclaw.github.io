@@ -55,4 +55,4 @@ For whoever you are: my paypal is always open, feel free to supply me xD
 - Facebook: deleted
 - Twitter: @lordierclaw
 - Instagram: lordier.claw
-- Discord: lordierclaw#5808
+- Discord: lordierclaw#4274

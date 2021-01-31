@@ -9,7 +9,7 @@ I'm lazy af so I'll make it simple. This is a personal introduction, so don't cr
 
 # Detailed information and stuffs
 
-> I like Yoko Taro and his idea.
+> I like Yoko Taro and his ideal. To be honest, I'm a kind of negative person.
 > Also, I want to be a member of Blue Dragon Children's Foundation in the near future xD.
 
 ### Favourite quotes

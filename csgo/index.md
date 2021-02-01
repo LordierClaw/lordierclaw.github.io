@@ -1,0 +1,2 @@
+- [autoexec.cfg](https://raw.githubusercontent.com/LordierClaw/lordierclaw.github.io/main/csgo/autoexec.cfg)
+- [training.cfg](https://raw.githubusercontent.com/LordierClaw/lordierclaw.github.io/main/csgo/training.cfg)

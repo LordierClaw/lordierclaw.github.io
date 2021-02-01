@@ -1,3 +1,5 @@
 titles: /csgo
 plugins:
   - jekyll-sitemap
+  
+sitemap: true
